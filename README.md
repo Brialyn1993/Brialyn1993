@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Brialyn1993
 - 👀 I’m interested in Gardening, building, learning, growing, creating new realities.
 - 🌱 I’m currently learning about...
-- 💞️ I’m looking to collaborate on sustainable building and restorarion.
+- 💞️ I’m looking to collaborate on sustainable building and restorative projects.
 - 📫 How to reach me- naturefriend888@yahoo.com
 
 <!---
